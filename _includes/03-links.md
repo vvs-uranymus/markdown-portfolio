@@ -1,1 +1,1 @@
-[nu.nl](https://www.nu.nl)
+[nu.nl](https://www.nu.nl/)
